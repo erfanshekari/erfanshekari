@@ -1,5 +1,4 @@
 # Hey, My name is Erfan Shekari
-- 👀 I’m interested in anything Programable :)
 - 📫 How to reach me : [Telegram](https://t.me/irfan_shekari) , [E-Mail](mailto:erfan.dp.co@gmail.com)
 
 <!---
