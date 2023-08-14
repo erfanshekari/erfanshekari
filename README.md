@@ -1,4 +1,4 @@
-# Hey, My name is Erfan Shekari
+# Erfan Shekari
 - 📫 How to reach me : [Telegram](https://t.me/irfan_shekari) , [E-Mail](mailto:erfan.dp.co@gmail.com)
 
 <!---
